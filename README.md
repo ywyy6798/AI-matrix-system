@@ -71,4 +71,4 @@
 ## 商务微信：ywyy6798
 
 ![AI矩阵系统](images/AI矩阵系统1.png)
-![AI矩阵系统](images/AI矩阵系统2.png)
+![AI矩阵系统1-2](images/AI矩阵系统1-2.png)
